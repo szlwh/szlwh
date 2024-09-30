@@ -1,16 +1,27 @@
-## Hi there 👋
+↓↓↓最/新/观/看/入/口↓↓↓
 
-<!--
-**szlwh/szlwh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+沐斓表示无所谓，“他想找就找，左右我也不是原告，找我没用，而且他来找我的话，只会让沐珊死得更快一些而已。”
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+知道了沐斓的态度，周夏就什么负担都没有了。
+
+她老气横秋地拍了拍沐斓的肩膀，“表哥，让你留在中心城你非要回来，那个沐珊简直跟她妈就是一个德行，茶里茶气的，可想而知你这几年受了多少委屈。”
+
+沐斓听得只想发笑，“你为什么会觉得我是受委屈的那一个？”
+
+“你一个，人家三个，还要拉上个夏侯家，就算他们拼智力拼武力斗不过你，可恶心也是能恶心死人的。”周夏说。
+
+想到一些国王，沐斓煞有介事地点了点头，“你说得对，确实挺恶心的。”
+
+话音刚落，黎冬进来了。
+
+餐厅里没有其他客人，黎冬一进来，锦晏四人的目光都看向了她，那一瞬间黎冬像是被定住了一样，表情都是僵的。
+
+但她很快就解释起来，理由还是之前跟工作人员说的那个，周夏听了却不信，“才认识两小时，连对方叫什么名字都不知道，你就敢相信她们说的话，把人往这种酒店领，你平时还总是教育我，说我没心没肺会给大家惹麻烦，怎么你自己却反着来呢？”
+
+黎冬：“夏夏，我知道因为昨天的事情你对我有偏见，但我真的以为她们就是忘了房卡，我确实不知道她们的姓名，可就算是陌生人，也不会拒绝那样一个微不足道的小忙吧？”
+
+周夏嘴角压平了，语气透着嘲讽，“本来没偏见，现在有了。”
+http://www.6k5k.top
+黎冬噎住了。
